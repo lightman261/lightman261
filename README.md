@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @lightman261
+- 👀 I’m interested in datapacks/python
+- 🌱 I’m currently learning datapacks/python
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me dont
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I know the second word in my username already.
